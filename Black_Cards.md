@@ -1,5 +1,4 @@
-# CoAHBot0001
-List of Black Cards
+# List of Black Cards
 
 Why can't I sleep at night?
 I got 99 problems but _ ain't one.
